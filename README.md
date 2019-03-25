@@ -160,10 +160,10 @@ o si deberás estudiar un poco más y repetir la entrevista.
 
 ## Parte V: Desafíos para resolver y entregar
 
-sta partes del proceso de postulación consiste en hacer algunos desafíos. 
+Esta parte del proceso de postulación consiste en hacer algunos desafíos. 
 Los desafíos serán enviados a tu correo electrónico. El gran objetivo de esta 
 etapa es conocer algunos retos reales que las empresas hacen como 
-parte del proceso de selección. Asi que, qué mejor que haber visto un par 
+parte del proceso de selección. Asi que, ¿qué mejor que haber visto un par 
 antes?
 
 
