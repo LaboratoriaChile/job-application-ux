@@ -158,15 +158,6 @@ dirá si estás preparada para el siguiente paso del proceso de postulación,
 o si deberás estudiar un poco más y repetir la entrevista. 
 
 
-## Parte V: Desafíos para resolver y entregar
-
-Esta parte del proceso de postulación consiste en hacer algunos desafíos. 
-Los desafíos serán enviados a tu correo electrónico. El gran objetivo de esta 
-etapa es conocer algunos retos reales que las empresas hacen como 
-parte del proceso de selección. Asi que, ¿qué mejor que haber visto un par 
-antes?
-
-
 ## Recursos externos
 * [Elementos a considerar al escribir tu CV](https://drive.google.com/file/d/17BL00Qd0z2NBQkTEeg2_BgvQNsytMaMu/view?usp=sharing).
 * [Check list](https://docs.google.com/spreadsheets/d/1MyOE5v1TxOMovsTiMQ21QzRPxCRXIKpaOOLS99y3MKQ/edit#gid=1386834576)
